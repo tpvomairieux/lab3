@@ -1,1 +1,1 @@
-created by Phu on 2/4/2026
+This is lab 3 exercise, team members Phu and Ronnie
